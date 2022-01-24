@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+## Some of my favorite things:
+
+- The Legend of Zelda Franchise 
+- Cheesecake
+- Learning
